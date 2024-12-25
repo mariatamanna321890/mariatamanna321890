@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mariatamanna321890
-- 👀 I’m interested in reading 
+- 👀 I’m interested in reading Arabic books.
 - 🌱 I’m currently learning from International Islamic University of Chittagong
 - 
 
